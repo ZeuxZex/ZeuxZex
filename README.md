@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ZeuxZex0
 - 🤢 If you have this scripts but they are not bought from me i hope you don't know how to use it!
-- ✨ My discord - discord.gg/soon
+- ✨ My discord - https://discord.gg/ejk5xNzJDP
 - 🛒 You can buy scripts from the discord above
